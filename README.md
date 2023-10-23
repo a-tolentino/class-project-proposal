@@ -1,1 +1,1 @@
-# class-project-proposal
+# class-product-proposal
